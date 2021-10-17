@@ -64,3 +64,36 @@ Robusta trees are easier to grow, produces higher yields,
 This bean is rounder and shape with a straight cleft down its middle.
 CHEAP
 Has a higher caffeine content.
+It is the type you are most likely to drink when you follow instructions to "Add hot waler
+and stir"
+These are most disease-resistant than Arabica species.
+b reaved
+Robusta beans usually possess a woody, astringent flavor.
+They are used when a lower price or additional caffeine is desired.
+pointed
+Libriias
+(rihaia)
+Excelça
+(20-10
+1
+Arabica
+Robusta
+One of the Most Expensive Coffee:
+Coffee Alamid or Civet cat is the most expensive type of coffee beans
+The most expensive coffee in the world comes from Indonesia.
+Kopi Lamuk the most expensive coffee in the world does exist, and those who drink the
+expensive coffee insist that it is made from coffee beans eaten, partly digested and then
+excreted by the Common palm civet, a weasel-like animal.
+"Kopi" the Indonesian word for coffee along with "luwak" is local name of this animal
+which eats the raw red coffee beans. The civet digests the soft outer part of the coffee
+cherry, but does not digest the inner beans and excretes them.
+Black Ivory Coffee the Most Expensive Coffee:
+Black Ivory coffee is the rarest coffee and the most expensive one.
+From Arabica Beans consumed by elephants and collected from their wastes. The taste of
+Black Ivory coffee is influenced by elephants' digestive enzymes, which breaks down the
+coffee's protein.
+The coffee beans are digested within 15 to 70 hours, and are present with various other
+ingredients in the elephants' stomachs, which imparts specific flavors to the products.
+In contrast to the omnivorous civets which produce kopi luwak (civet coftee), elephants
+are herbivores. Herbivores utilize fermentation to help break down cellulose (green leafy
+matter).
