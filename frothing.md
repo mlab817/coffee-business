@@ -34,3 +34,40 @@ Steamed milk: Milk that has been heated, with the steam wand held close to the b
 of the pitcher, (steaming method) with no attention being paid to the creating of foar
 Frothed milk: Milk that has been carefully steamed and expanded to create a com
 velvet foam, and the foam has not yet separated from the milk.
+Foamed milk: Milk that has been carefully steamed, and has expanded. (same as for the
+frothed milk) But when allowed to set, the foam rises and settles at the top of the milk
+Allowing it to be scooped out by a spoon.
+Pre-flavoured steamed milk: You can steam pre-flavored milk or you can create a ilavor
+of your own. Simply, add I ounce of an Italian Style syrup (any Nlavor) to 1/3 pitcher of
+cold milk (follow the steaming methods). You will then have a lightly Navored steamed
+milk with very tasty foam, for making lattes or drinking as is.
+Espresso Based Beverages:
+CAPPUCCINO
+A standard cappuccino is one part espresso with about three parts of frothed milk. Cappuccino is
+more coffee and less milk using foam milk. The foam milk on top of the cappuccino acts as an
+insulator to helps retain the heat of the liquid, allowing it to stay longer hotier
+LATTE
+Consistency is milkier than cappuccino. One part espresso with at least five parts stared (hot)
+milk and only a small amount of froth on top. Latte is less coffee and more milk and has periorming
+latte art by the skilled Barista.
+MOCHA
+One part espresso with one part chocolate syrup and two or three parts of frothed milk optionally
+topped with whipped cream and chocolate drizzle.
+Working with a new Italinn style syrup (based on a 12oz. cup)
+1 oz.
+New Flavor Italian Syrup
+1 shot Espresso
+Steamed Milk
+Easy
+Guideline for Adding Flavor
+I.
+- Flavor
+2.
+Espresso
+3
+Blend well (you can mix them together with a bar spoon)
+4. Steamed Milk
+Whipped Cream and Garnish
+For best results combine in order given. Blend before adding toppings
+Combinine Two Syrups:
+Start with a ½ ounce of each flavour.
