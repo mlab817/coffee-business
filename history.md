@@ -47,6 +47,8 @@ _**2 Types of Coffee Beans**_
 - Robusta beans usually possess a woody, astringent flavor.
 - They are used when a lower price or additional caffeine is desired.
 
+![Arabica vs Robusta](/246071387_631264001618200_8562518800991473884_n.jpg)
+
 **One of the Most Expensive Coffee:**
 Coffee Alamid or Civet cat is the most expensive type of coffee beans
 The most expensive coffee in the world comes from Indonesia.
