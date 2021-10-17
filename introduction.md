@@ -81,3 +81,50 @@
 - Documentary Stamp Tax Declaration Certificate
 - Annual Registration Fee
 
+**Things to Remember in Setting Up A ColTee Shop Business:**
+
+- Think of the kind of cafè you are planning to open, is it a place where a group of friends can hang-out for a long time
+- Picture yourself in a café
+- Decorate your unique cafè
+- Decide how big it should be
+- Decide a unique name for your café
+- Secure your business permits or any permits needed to open a shop.
+- Ask for help
+- Be a leader, think, imagine, and decide
+- Always use your heart and mind
+- Offer a loyalty program to gain loyal and regular customers.
+- Start with a good atmosphere.
+- Be creative to your customers. Always add something new in your menu
+- Set your menu at reasonable prices
+- Know your competition in your area The next coffee shop should be 1 kilometer away from your shop
+- When you start your café let people know about it Advertise, distribute flyers.
+- Have a strong social media networking, such as website, Facebook or even Instagram accounts exclusive for your shop
+- Run your business profitably
+- Your Shop should be hospitable, make sure people come out more rested when they came in.
+
+**Budget Planning**
+
+- Write everything down that you will need to set up your coffee shop. The number can either empower you or paralyze you.
+- Don't be afraid to face your start-up cost
+- Adding Up the Small Things You will also want to factor many of the small things too, from the fixtures and furniture pieces, to plumbing, lighting, and coffee invemory (initial products) You will find that these items cannot be overlooked So Budget them in and be liberal with the amount you will need to spend for
+each of them
+- It's better to over budget. Separate your personal finances as early as possible.
+
+**Responsibilities to year Customers**
+
+- Provide the highest quality coffee beverage.
+- Provide courteous and friendly service at all times
+- Maintain consistent store hours.
+- Maintain sufficient levels of inventory to meet customer demands
+
+**What is a Profitable Coffee Business**
+- High quality Coffee
+- Best Equipment
+- Invest in your staff
+- Prionitize your customers, to establish regular customers.
+
+**Your Vision**
+
+- Create a unique and relaxing place for your customers.
+- To be on time in preparing Coffee for your customers. Avoid Delays.
+- Delays makes unhappy customers and not good for the business.
